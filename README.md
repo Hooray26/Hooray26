@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hooray26
-- 👀 I’m interested in ...
+- 👀 I’m interested in fitness,coding
 - 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me in E-Mail：2739163396@QQ.COM
